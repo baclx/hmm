@@ -1,0 +1,1 @@
+# ha-shop.github.com
